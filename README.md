@@ -4,7 +4,7 @@
 
 Within the Career Readiness module you were asked to perform various career related activities.
 
-In the questions below you will be asked to input links or copy/paste what you should have completed while going through the module.
+In the questions below you will be asked to enter links or copy/paste what you should have completed while going through the module.
 
 If you don't know what one of the questions is referring to please go back through the module content for clarification.
 
